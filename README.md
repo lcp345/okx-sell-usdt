@@ -102,7 +102,6 @@ Why people like it: Registration takes no time. You actually get to talk to real
 
 It's legitimately good. OKX ranks among the top crypto exchanges for good reasons—strong security, user-friendly platform, and a massive selection of cryptocurrencies to trade. Whether you're just starting out or you've been in crypto for years, it offers enough features and trading pairs to keep you busy.
 
-![Promotional banner showing crypto trading call-to-action with modern design elements](image/46000231605.webp)
 
 ---
 
